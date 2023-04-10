@@ -1,0 +1,1 @@
+# -Pick-The-Right-Path-Obby-For-A-Prize-Easy-script
